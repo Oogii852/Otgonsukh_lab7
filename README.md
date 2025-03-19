@@ -1,2 +1,2 @@
 # Otgonsukh_lab7
-a
+labartoriin ajil 7
